@@ -1,1 +1,1 @@
-Follow these Instrunctions for this Program
+Follow these Instructions for this Program
